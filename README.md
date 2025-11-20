@@ -42,7 +42,7 @@ Professional visuals including logos, social creatives, banners, and brand kits.
 ---
 
 ## 📩 Contact Us
-**Email:** info@sadhanacybertech.com  
+**Email:** sadhanacybertech@gmail.com  
 **Location:** India  
 
 Let’s build something great together.
